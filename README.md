@@ -53,7 +53,7 @@ AP Urdu Residential School, Guntur (2018–2019)
 
 ## 🔗 Connect with Me
 - 💻 GitHub: [RajKumarisnotmyname](https://github.com/RajKumarisnotmyname)  
-- 💼 LinkedIn: [Swarup Kumar](https://www.linkedin.com/in/Swarup-Kumar)
+- 💼 LinkedIn: [Swarup Kumar](https://www.linkedin.com/in/swarup-kumar-dupati-6a6071366/)
 
 ---
 
